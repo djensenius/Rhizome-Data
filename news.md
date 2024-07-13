@@ -1,3 +1,7 @@
+***Weiner dog race complete***
+
+Rhizome finished!
+
 ***Upcoming wiener dog race***
 
 12 July 6:30 PM to 10:00 PM
