@@ -13,3 +13,4 @@ Elora, ON N0B 1S0 Canada
 [Google Maps](https://maps.app.goo.gl/LmSuE3pftGQRPKhW9)
 
 [Live stream](https://grandriverraceway.com/livestreams-replays/#hd-livestream)
+
