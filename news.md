@@ -1,10 +1,6 @@
-***Weiner dog race complete***
+***2025 Wiener Dog Race***
 
-Rhizome finished!
-
-***Upcoming wiener dog race***
-
-12 July 6:30 PM to 10:00 PM
+4 July 6:30 PM to 10:00 PM
 
 ```
 Grand River Raceway
@@ -12,5 +8,9 @@ Grand River Raceway
 Elora, ON N0B 1S0 Canada
 ```
 
-[Competitors](https://grandriverraceway.com/wp-content/uploads/2024/05/Wiener-Dog-MEET-THE-COMPETITORS.pdf)
+[Apple Maps](https://maps.apple.com/?address=7445%20Wellington%20Rd%2010,%20Moorefield%20ON%20N0G%202K0,%20Canada&ll=43.806697,-80.706514&q=7445%20Wellington%20Rd%2010)
+
+[Google Maps](https://maps.app.goo.gl/LmSuE3pftGQRPKhW9)
+
+[Live stream](https://grandriverraceway.com/livestreams-replays/#hd-livestream)
 
